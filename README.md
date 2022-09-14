@@ -1,1 +1,1 @@
-# ravi my nave is ravi from jammalamadugu
+# ravi my nave is ravi
